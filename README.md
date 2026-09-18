@@ -217,4 +217,4 @@ Terminus is offered as a complete free version with all features and updates inc
 Don't miss your chance to relive the excitement of *Speed* with the thrilling gameplay of Terminus. **Download Terminus free today and start your adventure!**
 
 ---
-**Last updated:** 2026-09-18 12:52:41 UTC
+**Last updated:** 2026-09-18 17:01:18 UTC
